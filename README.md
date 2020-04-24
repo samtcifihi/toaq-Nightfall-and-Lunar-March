@@ -1,7 +1,7 @@
 # Toaq Trans. of "Nightfall" and "Lunar March" from "Moonrise"
 
 ## The Original
-[https://youtu.be/IBvl-AdnHGY](Moonrise: A Symphonic Metal Opera)
+[Moonrise: A Symphonic Metal Opera](https://youtu.be/IBvl-AdnHGY)
 [Lyrics](https://www.youtube.com/redirect?q=https%3A%2F%2Fwww.dropbox.com%2Fs%2Ftwljye8whhhf4yv%2FMoonrise%2520Album%2520Notes.pdf%3Fdl%3D0&redir_token=RZZylqlmTHNOvPP0AMp2pBcNlXt8MTU4Nzc3NzU4NkAxNTg3NjkxMTg2&event=video_description&v=IBvl-AdnHGY)
 
 ## Files
