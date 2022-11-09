@@ -1,3 +1,5 @@
+# Toaq Beta (incomplete) {
+
 púı gỉofūrī nủaqhōe pa	(the many lightwise-oscillating stars)
 dẻpāq pó séoq ga fỉeqnō na	(adorn the canvas of the sky)
 ru cả mảjīāıcāısī	(and cause to acquire strong focus, as if by magic)
@@ -9,3 +11,8 @@ moq rêaq ru nûo na súq bi (? lying and sleeping you:)
 ma nủopēo súq páq jỉaqtū söq gỉ moq (whether sleep-through you the part of the universe which is best?)
 
 [lúa kỏy:]
+lũ jỏaq 
+
+}
+
+# Toaq Gamma (in progress)

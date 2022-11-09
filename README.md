@@ -8,8 +8,8 @@
 
 ## Files
 
-* "kaise1.txt" contains the current translation.
-* "lyrics.pdf" contains the original lyrics, but is not in source control out of respect for the original artists.
+* "shikaise.txt" contains the current translation.
+* "lyrics.pdf" contains the original lyrics, but is not in source control out of respect for the original artists. It is available from the links above.
 
 ## Conventions
 
