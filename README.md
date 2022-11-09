@@ -8,7 +8,8 @@
 
 ## Files
 
-* "shikaise.txt" contains the current translation.
+* "gamakaise.txt" contains the current translation.
+* "betakaise.txt" contains the start of an abandoned beta translation.
 * "lyrics.pdf" contains the original lyrics, but is not in source control out of respect for the original artists. It is available from the links above.
 
 ## Conventions
