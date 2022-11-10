@@ -11,4 +11,8 @@ ru mả nủo súq rào sóq gỉ ão môq	(and ĉu sleep you during the most-go
 
 [mí lủakuq:]
 je jôaq lúqhoe bı pủ sỉbu máq nháo da (rules the silent sun, ignored she her)
-tıu shỏe máq (so, allow she [...])
+shỏe máq pôaq nháobo mỏerıaq gẽqsıa	(allow she that-break-her-heart-alone)
+
+cả póaı shảohuı pü sảojeaq máq cy (cause a seed-wicked which grew)
+mêa [sharp and hateful thorns] ga [her loving mind]
+mêa
