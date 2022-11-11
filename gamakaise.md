@@ -14,5 +14,4 @@ je jôaq lúqhoe bı pủ sỉbu máq nháo da (rules the silent sun, ignored sh
 shỏe máq pôaq nháobo mỏerıaq gẽqsıa	(allow she that-break-her-heart-alone)
 
 cả póaı shảohuı pü sảojeaq máq cy (cause a seed-wicked which grew)
-mêa [sharp and hateful thorns] ga [her loving mind]
-mêa
+mêa chóıbeq lỏı nháobo chỉaq mảı cy sĩao (that be among hate-thorns her loving mind; begginning)
